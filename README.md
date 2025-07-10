@@ -22,4 +22,4 @@
 
 立即收藏本站，开启你的2025日本AV探索之旅。成人羞羞免费平台，带你走进真正的高清、极速、无忧观影新时代！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben999999 ）</span> 
